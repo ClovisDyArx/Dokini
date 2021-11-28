@@ -1,2 +1,29 @@
 # Dokini
 A revolutionnary project for a healthier food
+ee
+e
+e
+e
+e
+e
+e
+e
+e
+er
+ez
+er
+er
+er
+e
+r
+er
+er
+e
+re
+r
+ezt
+re
+tre
+gter
+t
+etr
